@@ -1,4 +1,4 @@
 # Git-GitHub-5-Merge-Conflits LOCAL
-qsdqsdqsdqsdqd
+qsdqsdqsdqsdqdssssssssss
 qsdqsdqsdqsdq
-cwxcwxctrrezfgdfgbc
+cwxcwxctrrezfgdfgbcsssssssssssssssss
